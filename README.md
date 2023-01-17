@@ -7,16 +7,16 @@
 
 - 🔭 I’m still working on my course
 - 🌱 I’m currently taking Software Engineering at ALX
-- 📫 How to reach me: https://wa.me/254 768 827492
+- 📫 How to reach me: https://wa.me/254768827492
 -  💬 Ask me about ... Anything
 - 😄 Pronouns:  she/her
 - ⚡ Fun fact: I believe in me
 
 ## My KeyDrive
-"?????????????????? "
+"Struggle till perfect"
 
 ### Talk with me via WhatsApp, I am kinda awesome 
-https://wa.me/254 768 827492
+https://wa.me/254768827492
 
 ### Languages
 
