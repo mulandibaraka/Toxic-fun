@@ -5,7 +5,7 @@
 
 ## I'm still a student 
 
-- 🔭 I’m still working on my course (**********)
+- 🔭 I’m still working on my course
 - 🌱 I’m currently taking Software Engineering at ALX
 - 📫 How to reach me: https://wa.me/254 768 827492
 -  💬 Ask me about ... Anything
