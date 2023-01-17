@@ -13,7 +13,7 @@
 - ⚡ Fun fact: I believe in me
 
 ## My KeyDrive
-"Struggle till perfect"
+"struggling till perfect"
 
 ### Talk with me via WhatsApp, I am kinda awesome 
 https://wa.me/254768827492
